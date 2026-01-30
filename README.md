@@ -19,3 +19,6 @@ Hey mermaid, so it's been tp17 and I have started to feel that I feel most of th
 5. Throat/Vishuddha - Thyroid & Parathyroid Glands - Regulate metabolism, growth, body temperature, calcium balance, energy levels
 6. Third eye/Ajna - Pituitary Gland - Master gland: controls other endocrine glands, growth, hormones, sleep, reproduction, intuition
 7. Crown/Sahasrara - Pineal Gland - Regulates sleep-wake cycle (melatonin), circadian rhythm, spiritual awareness, higher consciousness
+
+
+https://github.com/manjeet634/
